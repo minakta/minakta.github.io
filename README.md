@@ -1,0 +1,1 @@
+# minakta.github.io
